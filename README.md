@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Hi, I'm Furkan, Software Developer & Accountat from Turkey<br><br>🤝 Hi, I'm Furkan, Software Developer & Accountat from Turkey<br><br>📚  I'm currently studying in Bartın University Management İnformation Systems<br><br>💬  How to reach me: info@furkangulyaprak.com<br>
+🔭 Hi, I'm Furkan, Software Developer & Accountat from Turkey<br><br>📚  I'm currently studying in Bartın University Management İnformation Systems<br><br>💬  How to reach me: info@furkangulyaprak.com<br>
 
 
 ## 🌐 Socials:
